@@ -1,1 +1,0 @@
-# tylermcnamara.github.io
